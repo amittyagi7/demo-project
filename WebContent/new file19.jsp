@@ -1,1 +1,0 @@
-Amit Kumar Tyagi
